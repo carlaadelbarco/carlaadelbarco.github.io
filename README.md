@@ -43,4 +43,4 @@ If you find any issues or have suggestions for improving my personal website, yo
 - Email: carlaalvb@gmail.com
 - LinkedIn: https://www.linkedin.com/in/carla-alvarez-del-barco/
 
-Thank you for your interest in my personal website! 
+Thank you for your interest in my personal website!
